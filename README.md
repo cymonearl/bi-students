@@ -1,0 +1,1 @@
+Mao ni atong BI gid ay
